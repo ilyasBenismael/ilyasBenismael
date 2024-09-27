@@ -5,7 +5,7 @@ Passionate Full Stack Developer specializing in both mobile and web applications
 
 
 
-## 🌐 Socials:
+## 🌐Linkedin:
 [https://linkedin.com/in/Ilyas Benismael](https://www.linkedin.com/in/ilyas-benismael-210a97264/) 
 
 
